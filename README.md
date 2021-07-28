@@ -1,1 +1,0 @@
-# BAPIOIX-Comunicacion_Visual
